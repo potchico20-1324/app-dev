@@ -14,12 +14,12 @@ My first repository
 
 ### 🏴‍☠️ Main Characters
 1. Monkey D. Luffy  
-2. Black beard  
+2. Uta  
 3. Shanks  
 4. Nami  
 5. Zoro  
 
-
+*Thank you for reading!* 🎬
 
 
 
