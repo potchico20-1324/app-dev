@@ -19,7 +19,7 @@ My first repository
 4. Nami  
 5. Zoro  
 
-
+*Thank you for reading!* 🎬
 
 
 
